@@ -3,10 +3,4 @@ PN
 
 thoughts ... in beta
 
-Ooh, I like the coding space.
-
-1. Markets are Conversations
-
-Shit, wait, wrong Manifesto. These are not the manifestos you are looking for. Proper manifesto to come.
-
-Name! We need a name.
+What are you thinking for here? A continuation or capturing of the "here's what we're thinking and why" discussion? Sorry, not sure how to add to this area yet.
